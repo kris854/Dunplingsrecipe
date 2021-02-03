@@ -1,0 +1,1 @@
+you need dumpling wrapper and ground chicken mash up the ground chiken and one by one put them on each wrapper and wrap them and steam them
